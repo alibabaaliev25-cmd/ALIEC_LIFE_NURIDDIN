@@ -1,2 +1,2 @@
-# ALIEм_LIFE_NURIDDIN
+# ALIEV_LIFE_NURIDDIN
 Салом Мехоҳам худро дар чаҳони онлайн,муаррифи кунам
